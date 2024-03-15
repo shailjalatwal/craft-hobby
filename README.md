@@ -6,3 +6,5 @@ enjoy learning craft online
 make your dream to be reality.
 <br>
 sell your product online
+<br>
+show your talent to the world
